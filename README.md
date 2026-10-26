@@ -122,4 +122,4 @@ For business inquiries or collaboration, use the contact form on the website or 
 
 ---
 
-Made with ❤️ by Jibin Reji
+Made with ❤️ by Abin KR
